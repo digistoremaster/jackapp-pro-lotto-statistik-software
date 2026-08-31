@@ -1,4 +1,3 @@
-
 # Lottozahlen Vorhersage Software: Jackapp PRO für LOTTO 6aus49 & EuroJackpot
 
 ## Der Mythos des puren Zufalls: Warum Millionen Lottospieler Woche für Woche Geld verschenken
